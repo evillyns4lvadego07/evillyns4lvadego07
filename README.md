@@ -1,7 +1,7 @@
 # sobre mim
 
 - 👋 olá meu nome é @evillyns4lvadego07
-- 😊 eu estou interessada em aprender novas linguagens.
+- 😸 eu estou interessada em aprender novas linguagens.
 - 🥳 eu estou aprendendo a programar agora.
 - 👍 email de contato: evillynl430@gmail.com
 
